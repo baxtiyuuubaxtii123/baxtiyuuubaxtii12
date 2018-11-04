@@ -1,0 +1,2 @@
+# baxtiyuuubaxtii12
+Andijon
